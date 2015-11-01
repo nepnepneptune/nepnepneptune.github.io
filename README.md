@@ -1,3 +1,3 @@
 # nepnepneptune.github.io
 nepnep
-nothing
+helphow do i internetz
